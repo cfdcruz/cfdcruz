@@ -3,9 +3,9 @@
 - 🎓 MBA student @ the Tuck School of Business
 - 💼 Product Management Intern (and loving it!)
 - 🌲🌳🌲 Currenty living in the Upper Valley, NH (affectionately known as the woods!)
-- ⛷️ Skiing, 🏌️‍♂️ golfing, 🏋️‍♂️ lifting, 🐶 dog walks and 📚 audiobooks (Libby fan here)
+- ⛷️ Skiing, 🏌️‍♂️ golfing, 🏋️‍♂️ lifting, 🐶 dog walks and 📚 audiobooks (huge Libby fan)
 - 🌱 Currently learning all things GitHub and excited to immerse myself this summer
-- 🚀 Goal: Become one with the product (watch out, GitHub!)
+- 🚀 Goal: Become one with product
 
 ---
 
